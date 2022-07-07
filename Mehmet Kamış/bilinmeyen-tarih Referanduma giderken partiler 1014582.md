@@ -1,0 +1,18 @@
+# Referanduma giderken partiler
+
+*Mehmet Kamış bilinmeyen-tarih*
+
+<td class="news-spot">
+<p>Türkiye'yi o eski düzenden kısmen kurtaracak olan referanduma hızla yaklaşıyoruz. Son zamanların en trajikomik haberlerinden birisi şüphesiz PKK'nın yol keserek bölge halkından referandumda 'hayır' oyu kullanmalarını istemeleriydi.</p>
+<p><p>Bugün gazetesinin haberine göre, Tunceli Ovacık'ta 10 kadar terörist 30 aracı durdurup "Referandumda hayır oyu kullanacaksınız yoksa canınızdan olursunuz.'' diyerek tehdit ediyor. PKK'nın ve BDP'nin 'hayır' oyu kullanılmasında bu kadar ısrarcı davranması, diğer bir hayırcı MHP'yi çok sıkıntıya sokuyor. Buna rağmen teröristleri de işin içine sokarak 'hayır' kampanyası yapmaktan kendilerini alamıyorlar.
+<p>CHP'nin referandumda statükonun devamı için takındığı yeni tavır bir hayli ilginç. Şu andaki durumdan halkın çok rahatsız olduğunu gören CHP, biraz taktik değiştirerek daha özgürlükçü bir dil kullanmayı tercih ediyor. CHP Genel Başkanı Kemal Kılıçdaroğlu'nun önceki gün Hürriyet Gazetesi'ne yazdığı yazıda bunun işaretlerini görüyoruz. O mektuptan anladığım, 'özgürlük ve demokrasi' diyor ama statükonun devamı için 'hayır' oyu verilmesini istiyor.
+<p> Aslında yazdıklarında bir hayli çağdaş ve özgürlükçü ifadeler yok değil. Kılıçdaroğlu'nun iyi niyetli olduğunu düşünerek baktığınızda, bir CHP Genel Başkanı'nın kaleminden böyle özgürlükçü ifadelerin çıkması çok önemli. Kişisel hak ve özgürlüklerin gelişmesi ve demokrasinin iyi işlemesi için devlet gücünün kısıtlanması gerektiğini söylemesi, bir statüko partisi adına radikal sayılabilir. Hatta ordunun sivillerin denetiminde bulunmasının demokrasinin iyi işlemesi için önemli olduğunu dillendirmesi de kayda değer...
+<p> Ancak bu sözleri referandumda 'hayır' oyuna gerekçe sunarken söylemesi şüphe çekiyor. İnsanın aklına büyüklerin söylediği bir söz geliyor: "Ayinesi iştir kişinin lafa bakılmaz.'' Kemal Kılıçdaroğlu'nun özgürlük, demokrasi gibi kavramları, devlet öncelikli bu yapının değişmesini engellemek için kullanması samimiyet problemini ortaya çıkartıyor.
+<p>Referandumda 'evet' denmesi için kolları sıvayan ve diyar diyar gezen Tayyip Erdoğan'ın konuşurken agresif bir dili tercih etmesi kamuoyunda ters etki yapabilir. YAŞ'ta gösterdiği tavırla halktan büyük destek alan Tayyip Bey'in bu süreçte kullandığı dilin, çok kritik bir önemi var. Tayyip Bey'in yerinde olsam referanduma giderken AK Parti'nin icraatlarından hiç bahsetmezdim. İcraatların anlatıldığı konuşmalar 'statükocu hayırcılar'ın ekmeğine yağ sürüyor. Böyle olunca 12 Eylül referandumu icraatların anlatıldığı bir genel seçim havasına otomatikman bürünüyor. Bu tür söylemler, neticede toplumun yararına olacak bir anayasa değişikliğini, birincilik yarışına girmiş partinin meselesi haline dönüştürüyor.
+<p>Tayyip Erdoğan'ın seçim meydanlarını organize edenler, buna çok dikkat ediyor. Bir parti toplantısından çok referandum mitingi havasını oluşturuyorlar. Erdoğan'ın da bunu yapması lazım. Referandum konuşmalarında olabildiğince yumuşak üslup kullanıp icraatlarından bahsetmemesinde, daha çok bu referandumun millete ne getireceğini anlatmasında fayda var.
+<p>Daha önce de yazmaya çalıştığım diğer bir önemli konu ise 'evet'ler için Tayyip Bey'in meydanlarda yalnız bırakılmaması... Numan Kurtulmuş, Yalçın Topçu, Süleyman Soylu gibi liderlerin de sahaya inmesi ve evet mitingleri düzenlemesi büyük önem taşıyor. </p>
+<p></p>
+
+<p><br/> </p></p></p></p></p></p></p></p></td>
+
+Kaynak: [zaman.com.tr](http://zaman.com.tr/yazar.do?yazino=1014582), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20101107173711/http://www.zaman.com.tr:80/yazar.do?yazino=1014582)

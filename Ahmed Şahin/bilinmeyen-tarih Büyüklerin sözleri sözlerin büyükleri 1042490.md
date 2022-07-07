@@ -1,0 +1,20 @@
+# Büyüklerin sözleri sözlerin büyükleri
+
+*Ahmed Şahin bilinmeyen-tarih*
+
+<td class="news-spot">
+<p>Ülkemizde kaç büyük var, çocukluğundan beri kendini hiç düşünmediğini söyleyebilen, söylediklerini de dünyanın gözleri önündeki yaşayışıyla ispatlayan? İşte böyle büyüklerimizden birinin, yaşadığımız son olayları yorumlayan sözlerinden bir demet sunuyorum sizlere.</p>
+<p><p>Olayların üzerindeki sis perdesini kaldıran bu önemli açıklamaları birlikte okuyoruz.
+<p>"-Diyebilirim ki, çocukluğumdan beri kendimi hiç düşünmedim; şahsımla alâkalı olumlu hadiselerden de çok fazla sevinmedim. Fakat, milletimizin geleceği, devletler muvazenesinde yerini alması, en büyük devletleri bile gözünün içine baktırması ve uluslararası bir karar verileceği zaman "Bakalım bunlar ne diyorlar?" dedirtecek bir konuma ulaşması, benim hep gaye-i hayalim olmuştur. Bu anlayış, bazı kimselere bir ütopya, bir kurgu ve ancak bir roman mevzuu gibi gözükse de, ben sadece bu gaye-i hayalle yaşadım, bununla ilgili gelişmelerden dolayı hep memnuniyet duydum. Referandumun neticesine de milletimizin istikbali adına bu sebeple sevindiğimi söyleyebilirim.
+<p>-Çünkü insan hür olduğu sürece vardır; onun hürriyetine prangalar vurulmuşsa, artık o mezar-ı müteharrik bir bedbaht ve talihsizdir. Üzerinde değişik vesayetler olduğu sürece, o insan gerçek manasıyla hür insan değildir, insanlığından çok şeyler kaybetmiş, esir görünümündedir. Bu açıdan hürriyeti sağlama çalışmasının arkasında kim olursa olsun, ben o hareketi hep alkışlarım. Referandumu da bu açıdan alkışlamaya layık müspet bir gelişme olarak gördüm ve lehinde konuştum.
+<p> -Şayan-ı takdir olan odur ki, amatörce düşünen halkımız, çok defa elit sınıftan daha isabetli kararlar vermiştir. Onun için, demokrasiyi de ilk defa onlar alkışlamış, omuz verip onu biraz daha ileriye onlar götürmüşlerdir. Kendi oylarını beş on tane sayıp başkalarını cahil ve bir şeyden anlamaz görenler öyle göredursunlar, halkımız bu referandumda bir kere daha isabetli karar vermiştir. Bu sebeple netice, hiç kimsenin telkinine değil, milletimizin firaset ve basiretine verilmelidir..
+<p>-Referandum lehindeki mülahazalarımı açıkça ifade etmeyi bir vazife saydım. Çünkü, faydalı olacağına inandığım bir işi yapmazsam, ötede Allah'a hesap verme ve Peygamber Efendimiz karşısında mahcup olma durumuna düşerim; boynum bükülür ve ezilirim. Ülkem, milletim ve mefkurem adına yararlı olduğuna inandığım bir mevzuda suskun kalmam dilsiz şeytanlık olur.
+<p>-Ben öz be öz Anadolu çocuğu, bu milletin düz bir ferdiyim. Bir insanın, kendi millet fertlerini yine kendi memleketindeki bazı müesseselere girmeleri için teşvik etmesine, sızma denmez! Çünkü teşvik edilen insanlar da, teşvik edildikleri o müesseseler de yine bu ülkeye aittir. Evet, bir milletin ferdi, kendi milleti için var olan müesseselere sızmaz; hakkıdır, girer oraya; mülkiyeye de girer adliyeye de, istihbarata da girer, hariciyeye de... Unutulmamalıdır ki, kadrolaşma, sızma, çoğalma türünden iddiaları ortaya atanlar, böyle iddialarla vazifeperver insanları sindirmeye çalışanlar, hemen her devirde bu iftiralarının arkasına saklanarak ve hedef şaşırtarak kendi felsefeleri adına belli yerlere sızmış, kadrolaşmış ve çoğalmış kimselerdirler..
+<p> -Artık ideolojiler neyi emrederse etsin, keşke bir de kinin, nefretin, söylenen her söze bir laf yetiştirmenin yerine, "Dövene elsiz, sövene dilsiz, derviş gönülsüz gerek" diyen Yunus edasıyla birbirimize kucak açmaya çalışsak...
+<p>-Zaten vifak ve ittifak, tevfik-i İlahî'nin vesilesi, ihtilaf ve iftirak da İlahi yardımdan mahrumiyetin bir gerekçesidir. Hayırlı hizmetlerin dahi bereketini silip götüren ihtilaflı davranışlardan mutlaka kaçınmalı; böylece fiili bir dua ile Kalblerin Sahibi'ne yönelerek O'ndan topyekun gönülleri yumuşatmasını dilemeliyiz."
+<p>Evet, büyüklerin sözleri, sözlerin büyükleridir. </p>
+<p></p>
+
+<p><br/> </p></p></p></p></p></p></p></p></p></p></td>
+
+Kaynak: [zaman.com.tr](http://zaman.com.tr/yazar.do?yazino=1042490), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20101107072440/http://zaman.com.tr:80/yazar.do?yazino=1042490)

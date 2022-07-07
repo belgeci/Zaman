@@ -1,0 +1,21 @@
+# Statükonun akılsız mensupları
+
+*İhsan Dağı bilinmeyen-tarih*
+
+<td class="news-spot">
+<p>Yine başörtüsü sorununun çözümü konuşuluyor, yine 'statükonun kibirli mensupları' sahneye çıkıyor... Hukuk ve siyaset adamlarının bir hak ihlalini durdurmak yerine devamını savunmaları anlaşılır gibi değil.</p>
+<p><p>Eşitlik ve özgürlük gibi en temel talepler karşısına hangi engelleri çıkarırsanız çıkarın onları durduramazsınız. Modern dönem, bu değerler adına mücadeleler tarihidir; liberal demokrasi, çağdaş insan hakları düzeni ve hukuk devleti hep bu değerleri koruma altına almak üzere oluşturulmuştur.
+<p>Üniversite öğrencilerinin özgürlük ve eşitlik taleplerine karşı çıkanlar akıntıya karşı kürek çekiyorlar; dünyanın ve Türkiye'nin evrildiği yönden habersizler. Bu değerlere karşı direnenlerin kaybettiklerini ve kaybedeceklerini idrak edemiyorlar. Çağdışı kalmış bir ayrımcılık, haksızlık ve baskı rejimini sürdürmek imkânsız...
+<p>Başörtülülerin diğerlerinden daha az özgür, daha az hak sahibi olduğunu kim, nasıl iddia edebilir? Özgür ve eşit insanlara nasıl giyineceklerini dikte etmek kimin haddine? Siz kimsiniz de başkalarının tercihlerine yasaklar koymaya kalkışıyorsunuz? Ne Türkiye ne de dünya bir avuç azınlığın saçma sapan yasaklarına katlanmak zorunda artık.
+<p>Hak, özgürlük ve eşitlik talebinin gücünü anlamayanlar, çağı okuyamayanlar geriye fazla bir seçenek bırakmıyor: Tasfiye. Çağın gerisine düşmenin bedelidir tasfiye. Değişimi anlamayan, toplumsal olanı esas almayanlar tasfiye olurlar; yani hayattan çekilirler, siyaset, toplum ve ekonomi dünyasında sözlerinin hiçbir hükmü kalmaz.
+<p>Güney Afrika'da 'apartheid' rejimini savunanlar bugün ne kadar ciddiye alınıyorsa, 'yeni Türkiye'deki yasakçılar da o kadar ciddiye alınabilir. Yasakçılar inatla kendilerini toplumdan, tarihin akışından koparıyorlar. Bunlar kendi kendilerini tasfiye ediyorlar akılsızca.
+<p>Yargıtay Başsavcısı'nın siyasi partileri, tabii ki başta AK Parti'yi tehdit eden açıklaması tam bir 'intihar girişimi'. Statükoyu bu adamlar, böyle stratejik akıldan yoksun bir tarzda savundukça sırtları yerden kalkmaz ve tasfiye kaçınılmaz olur. Savcı Yalçınkaya Mayıs 2011'de emekli oluyor. Cübbesini çıkarmadan AK Parti'ye karşı bir kapatma davası daha açabilir isterse. Böyle bir kapatma davasının sonuçlarını tahmin etmek hiç de güç değil. Dünkü konuşması bile AK Parti'nin oylarını 3-5 puan artırmışken bir kapatma davasının, zaten yüzde elliye yaklaşan AK Parti oylarını daha da zıplatacağından hiç kuşku yok. Ancak böyle bir durumda, bugün Savcı'nın açıklamasına 'sus yeter' diyemeyen CHP lideri Kılıçdaroğlu, seçimlerden sonra çıkıp 'başsavcı AK Parti için çalıştı' diyebilir! 
+<p>Her neyse; diyelim Başsavcı siyaseti bilmiyor, peki CHP'ye neler oluyor? Onlar da mı öğrenemedi siyaseti hâlâ? Başörtüsü yasağını savunmak ve laiklik ekseninde sürreal bir muhalefet yapmak CHP'ye hiçbir şey kazandırmadı. Yani siyaseten de saçma, irrasyonel bir durum var karşımızda. Bu konularda tansiyonu yükselterek siyaset yapmak CHP'nin yararına değil. Sekiz yıllık süreçte 6 seçim yenilgisi bunun en net göstergesi. Sonuçta CHP yüzde 20'lerde kilitledi, iktidarı zorlayamadı bile. Belki CHPliler yüzde 10'un altına düşmemeyi başarı sayıyor olabilirdi dün, ama bugün işler biraz değişti.
+<p>Dün, CHP seçkinleri zaten iktidar olduklarını düşünüyorlardı. Ne de olsa 'devleti kuran' partiydiler ve vesayet rejiminde siyasal müttefikleri olan sivil-asker bürokrasi egemendi. Seçimleri kazanamasalar da iktidara hep ortaktılar.
+<p>Ancak son yıllarda tablo değişti. CHP artık 'devlet iktidarı'nı kaybediyor. Ne asker, ne Anayasa Mahkemesi ne de HSYK artık CHP'nin arka bahçesi... Ellerinde kala kala Yargıtay Başsavcısı kaldı. Onun da miadı mayısta dolacak. Yani artık CHP'nin de 'halk iktidarı'na ihtiyacı var.
+<p>Başörtüsü sorununda özgürlükçü ve eşitlikçi bir hamleyle 'halk iktidarı'na talip olduğunu gösterebilirdi CHP. Yapmadı; statükoyla birlikte tasfiye olacaklar kervanında kalmakta ısrar etti. i.dagi@zaman.com.tr</p>
+<p></p>
+
+<p><br/> </p></p></p></p></p></p></p></p></p></p></p></td>
+
+Kaynak: [zaman.com.tr](http://zaman.com.tr/yazar.do?yazino=1043347), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20101106022302/http://www.zaman.com.tr:80/yazar.do?yazino=1043347)

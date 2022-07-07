@@ -1,0 +1,25 @@
+# Kaddafi Türk  Harbiyesi'nden mezun
+
+*Nuh Gönültaş 1996.10.09*
+
+<td class="columnist-detail">
+<p>İşgalci İtalyanlar Ömer Muhtar'ın ayakları altından sehpayı çekince meydana gelen sarsıntıdan onun gözlükleri ayaklarının dibine düşer.</p>
+<p>
+<div id="haberMetinDiv">
+<p>Ömer Muhtar'ın boğazına çöken yağlı urgan onu çırpındırırken 5-6 yaşlarında bir çocuk, minik ellerini uzatarak, Muhtar'ın ileri geri çırpınan bacakları arasından bu gözlükleri alır ve perde kapanır.
+<p> Libya tarafından finanse edilen Antony Quin'in oynadığı, Libya'nın kurtuluşunu anlatan Ömer Muhtar filmi böyle bitiyor. Filmi seyreden herkes gözlükleri alan küçüğün Muammer Kaddafi olduğunu düşünüyor. Kaddafi de böyle söylüyor. Eğer böyleyse, tıpkı Saddam Hüseyin gibi, halkını bütün dünyadan tecrid ettirmeyi büyük bir maharetle başaran, Başbakan Necmettin Erbakan'a bütün diplomatik nezaket kurallarının ötesinde adeta hakaret edercesine hitap eden adam, herhalde o Ömer Muhtar'ın torunu olamaz.
+<p> Kaddafi bir Arap milliyetçisiydi ama gerçekte bir Türk düşmanı değildi. Askeri eğitimini Türkiye'de yaptı. 27 Mayıs 1960 darbesi sırasında Kaddafi bir harp okulu öğrencisiydi. Kaddafi Ankara'daki Kara Harp Okulu'nun 1962 mezunudur. Kaddafi ile birlikte Libya'da ihtilali gerçekleştiren Abdüsselam Callud da Türk harbiyesinden mezun. 1962-63 eğitim yılında Harbiye'nin dil okulunda da kurs gördüler. Kendisi ile birlikte, daha sonra Ortadoğu ve Kuzey Afrika ülkelerinde önemli görevler alacak olan 11 Arap daha vardı. Talat Aydemir Türkiye'de ihtilale kalkıştığında Kaddafi ve arkadaşları harp okulunda eğitimlerini sürdürüyorlardı. İhtilal için havalanan savaş uçakları gökyüzünde dolaşırken Dil Okulu'nun yetkilileri onları koruyabilmek için sığınaklara gönderdi. 
+<p> Kaddafi 1969'un 31 Ağustos'unu 1 Eylül'e bağlayan gece Libya'da ihtilal önderi olarak ortaya çıktığında Türkiye ve Türkiye tarihi hakkında olumlu düşünüyordu. Türkiye'de Libya hakkında yazılan kitaplarda Ömer Muhtar ve Atatürk'ün emperyalizme karşı mücadele eden iki lider olduğu yazılıdır. 1973'te Libya'ya giden gazeteci Hüdai Bayık'a Kaddafi şunları söyler: 
+<p> ''Sömürgeci ülkeler, Türk milleti gibi büyük bir millet ile Araplar arasında düşmanlık tohumları meydana getirmekte başarılı oldular. Bu durum dolaylı olarak sömürgeci ülkelerin işine geliyor. En doğru çözüm yolu, Arap liderleri ile Türk devlet adamları arasında görüşmeler yapılıp, bu anlaşmazlıkların çözümlenmesidir. Türklerle Araplar, İslam aleminde büyük bir kütle teşkil ederler; fakat sömürgeci ülkeler bu yakınlaşmayı arzu etmezler.''
+<p> Kenan Evren genelkurmay başkanı iken 12 Eylül darbesinden bir yıl önce 1979'da Libya'yı ziyaret etti. 
+<p> ''Mustafa Kemal, Libya'da Arap kardeşleri ile birlikte faşistlere karşı çarpışmış ve bu çarpışmalarda akan Türk ve Arap kanları birbirlerine karışmıştır.'' sözleri de Kaddafi tarafından 19 Mayıs 1981'de Tarblus'ta söylendi. 
+<p> Daha 1994 yılında Tansu Çiller'in Libya ziyaretinde Çiller'e ve Türkiye'ye övgüler yağdırmış, Çiller'i ''İslam kadını için çok iyi örnek'' olarak nitelendirmiş ve bol bol iltifat etmişti. 
+<p> Peki o günden bu yana değişen ne? 
+<p> Geçmişte de, günümüzde de Arap milliyetçiliğinin bütün liderleri, halklarına zulmetmeyi ve onları dünyadan tecrit etmeyi büyük bir maharetle başarıyorlar. Emperyalizme karşı mücadele ettiklerini söylerken, süper güç Amerika'yı halkının başına musallat ederek büyük bir zulme kapı açıyorlar. Yalnızlaştıkça da hırçınlaşıyorlar.</p></p></p></p></p></p></p></p></p></p></div>
+</p>
+
+
+<p><br>
+		 </br></p></td>
+
+Kaynak: [zaman.com.tr](http://zaman.com.tr/yazar.do?yazino=443640), [web.archive.org (arşiv bağlantısı)](http://web.archive.org/web/20111026131437/http://www.zaman.com.tr:80/yazar.do?yazino=443640)
